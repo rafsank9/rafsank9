@@ -1,4 +1,4 @@
-# Md Shamim Uddin
+# Md. Shamim Uddin
 **Full-Stack Web Developer | Jewelry Retouching Expert | Graphics Designer**
 
 Professional developer with over 5 years of experience in Adobe Photoshop and specialized expertise in high-end jewelry retouching. Focused on building robust web applications and creating high-quality visual content.
